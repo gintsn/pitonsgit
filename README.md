@@ -1,0 +1,2 @@
+# pitonsgit
+Nodarbībai
